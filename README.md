@@ -1,1 +1,1 @@
-HelloWorld!
+<svg>3xP+oQjtu7+I8RcRUsIn95S+3uAKTSIdp+bCOwtS3YDqGw8weL3qp36zFJ7Om4waSeVJTpdjADj0QxzQxlHjTA==</svg>
